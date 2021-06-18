@@ -1,6 +1,6 @@
-## Sebastian Espinoza Aguirre
 
-Bienvenidos a mi pagina
+
+## Bienvenidos a mi pagina
 
 Este es una pequeña biografia sobre mi.
 
