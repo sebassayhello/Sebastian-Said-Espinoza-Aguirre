@@ -13,7 +13,8 @@ veo series cuando tengo tiempo y me gusta viajar dentro y fuera del pais.
 
 ![ss](https://user-images.githubusercontent.com/86089080/122501173-d0911300-cfb9-11eb-8c2b-a2c960acf876.gif)
 
-![2021-05-27_19 26 24](https://user-images.githubusercontent.com/86089080/122501898-2dd99400-cfbb-11eb-80ef-ece756cc9448.png)
+![450_1000](https://user-images.githubusercontent.com/86089080/122564470-fe527800-d00a-11eb-8e7b-a1076ed7e16d.jpeg)
+
 
 Paginas de mis compañeros:
 
