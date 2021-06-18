@@ -17,4 +17,3 @@ veo series cuando tengo tiempo y me gusta viajar dentro y fuera del pais.
 
 Paginas de mis compañeros:
 
-Gabriel Corrales 
