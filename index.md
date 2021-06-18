@@ -17,3 +17,12 @@ veo series cuando tengo tiempo y me gusta viajar dentro y fuera del pais.
 
 Paginas de mis compañeros:
 
+<a href="https://gabrielcorrales.000webhostapp.com/" rel="nofollow noopener noreferrer" target="_blank">Gabriel Corrales</a>
+
+<a href="https://danielquispe1x2.github.io/p-ginaweb/" rel="nofollow noopener noreferrer" target="_blank">Daniel Quispe</a>
+
+<a href="http://evirtuales.com/SantiagoDavidGutierrezSoria.html" rel="nofollow noopener noreferrer" target="_blank">Santiago Guitierrez</a>
+
+<a href="https://josetellosaaz.github.io/JoseMiguelTelloSaaz/" rel="nofollow noopener noreferrer" target="_blank">Jose Tello</a>
+
+<a href="https://pedroarnaldotorreschahua.me/" rel="nofollow noopener noreferrer" target="_blank">Pedro Torres</a>
