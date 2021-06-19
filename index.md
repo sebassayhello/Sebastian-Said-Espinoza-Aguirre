@@ -28,3 +28,18 @@ Paginas de mis compañeros:
 
 <a href="https://pedroarnaldotorreschahua.me/" rel="nofollow noopener noreferrer" target="_blank">Pedro Torres</a>
 
+<a href="https://enmamilagroscondormedina.000webhostapp.com/" rel="nofollow noopener noreferrer" target="_blank">Enma Milagros</a>
+
+<a href="https://melanie-cubillas.github.io/Melanie-Illari-Cubillas-Alfaro/" rel="nofollow noopener noreferrer" target="_blank">Melanie Cubillas</a>
+
+<a href="https://aplo612.github.io./" rel="nofollow noopener noreferrer" target="_blank">Mauro Limachi</a>
+
+<a href="https://gabrielalvarado.me/" rel="nofollow noopener noreferrer" target="_blank">Gabriel Alvarado</a>
+
+<a href="http://adrianpinado.me/" rel="nofollow noopener noreferrer" target="_blank">Adrian Pinado</a>
+
+<a href="https://jobasi128.github.io/" rel="nofollow noopener noreferrer" target="_blank">Jhonatan Barzola</a>
+
+<a href="http://www.danielquichepalacios.com/" rel="nofollow noopener noreferrer" target="_blank">Daniel Quiche</a>
+
+<a href="https://skeletus.github.io/" rel="nofollow noopener noreferrer" target="_blank">Jesus Arias</a>
